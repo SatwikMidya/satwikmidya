@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there Its Satwik here 🙏
 
 #  About Me:
 I am an Aerospace Engineering student.<br>A tech enthusiast with love towards fast objects.<br>I am also a Blender 3D generalist, <br>love creating objects talk in screen.
